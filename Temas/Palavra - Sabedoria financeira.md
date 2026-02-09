@@ -117,6 +117,11 @@ Não significa ser extremo, mas o perfeito equilíbrio entre o excesso e a falta
 
 # 1. Planejamento
 
+O dinheiro não é só para você, é um ato de responsabilidade para com os que Deus colocou sob sua tutela.
+Provérbios 13:22 (NVI):
+>O homem bom deixa herança para os filhos de seus filhos, mas a riqueza do pecador é armazenada para os justos. 
+
+
 # 2. Receita
 ## Trabalho
 Provérbios 24:33-34 (NVI):
@@ -153,6 +158,13 @@ Compro o que **não preciso** com o dinheiro que **não tenho** para impressiona
 Liucas 12:15  Dinheiro é uma ferramenta, não a finalidade. É uma forma de ter saúde, estabilidade, segurança familiar. Não um propósito.
 
 # 4. Investimentos
+
+## O primeiro investimento
+1 Reis 3:5-13 (NVI)
+O crescimento profissional e da renda gerada por ela é fruto de boas escolhas. Salomão escolheu a sabedoria antes de todas as riquezas.
+
+Quanta spessoas ganharam nas loterias e perderam tudo por não ter sabedoria, planejamento sobre os investimentos nem propósito.
+
 ## Reserva de emergência
 José do Egito nos ensina sobre a regra dos 20%. Ele inspirou as dicas atuais da divisão 50-30-20, onde dividimos as despesas em 50% para necessidades, 30% para despesas não essenciais e 20% para reservas e investimentos.
 
@@ -178,3 +190,11 @@ Ter dinheiro não é o problema, mas sim o amor ao dinheiro:
 ¹⁰ pois o amor ao dinheiro é raiz de todos os males. Algumas pessoas, por cobiçarem o dinheiro, desviaram-se da fé e se atormentaram a si mesmas com muitos sofrimentos. 
 
 Enriquecimento é fruto do amadurecimento dos passos anteriores: Planejamento, Receita, Despesa e Investimento.
+
+Dinheiro é uma ferramenta, não a prioridade. 
+
+A pessoa que prioriza o dinheiro ela troca sua vida (tempo, saúde, relacionamento, paz e sono), e por que não dizer sua alma, por ele.
+
+## Caridade
+
+O equilíbrio entre caridade e crescimento deixa um legado duradouro. Riqueza com propósito garante provisão não só para sua família, mas para outras pessoas.
