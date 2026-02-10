@@ -1,25 +1,52 @@
 # Testemunho pessoal
 
-- Como era minha organização familiar na infância e adolescência;  
-- Minha adolescência na igreja católica;  
-- Falta de referência e de apoio;  
-- Decidi que não quero que meus filhos passem o mesmo
+**Teclado**: Quando comecei a aprender teclado na igreja, resolvi comprar um para casa e passei a trienar todos os dias.
 
-Pense em quem foi seu pai espiritual, em seu avô espiritual.
+Ofereci para as crianças algum dos instrumentos que tinham em casa para aprenderem na aula de musicalização, mas ambos gostam de outros, mas têm preferência pelo teclado também.
 
-O que se vê é a presença maciça das mulheres na igreja: “Irmãs Menonitas”, homens que deixam sua mulher e filhos na igreja e vão para outras atividades.
+Fiquei intrigado, pois curiosamente, é um instrumento difícil em relação à flauta doce, à gaita e ao metalfone, desproporcional par ao tamanho deles.
 
-O homem é o sacerdote (que intercede), o rei (que lidera) e o profeta (que instrui) da casa.
+**Adolescência**:
+Eu sempre quis aprender teclado desde a adolescência, foi uma oportunidade que o desejo de servir na igreja e de aprender o instrumento se encontraram.
+
+Lembrando da minha juventude, lembrei da minha infância, quando ia à igreja católica. Isso continuou na adolescência, mas os membros da família que iam à missa iam diminuindo até o momento em que eu estava sozinho.
+
+Por fim, ninguém mais ia para a igreja.
+
+Qual é a relação entre essas suas histórias?
+
+## Pai espiritual
+
+Disse Paulo na Primeira Epístola aos Coríntios:
+>15 Embora possam ter dez mil tutores em Cristo, vocês não têm muitos pais, pois eu mesmo os gerei em Cristo Jesus por meio do evangelho. 16 Portanto, suplico que se tornem meus imitadores. 17 Por essa razão, estou enviando a vocês Timóteo, meu filho amado e fiel no Senhor, o qual trará à lembrança de vocês a minha maneira de viver em Cristo Jesus, o que está de acordo com o que ensino por toda parte, em todas as igrejas.
+
+Pai espiritual é um mentor ou líder cristão maduro que gera, nutre e corrige filhos na fé, assim como Paulo foi a Timóteo e Tito.
+
+Você lembra quem foi seu pai espiritual? Conhece seu avô espiritual.
+
+**Irmãs Menonitas**: O que se vê é a presença maciça das mulheres na igreja e em eventos. Os homens deixam sua mulher e filhos na igreja e vão para outras atividades.
+
+> Disse mais o SENHOR Deus: Não é bom que o homem esteja só; far-lhe-ei uma **auxiliadora** que lhe seja idônea. (Gênesis 2:18)
+
+**Ezer** (Auxiliadora) no sentido de prestar socorro ou suporte. Nas empresas, as áreas suporte são as que porpiciam à atividade fim a realizarem suas atividades com idoneidade, transparência e conformidade.
+
+A sociedade não está mais formando varões de valor. Eles está delegando ou abandonando sua responsabilidade espiritual às mulheres sobrecarregando-as e desequilibrando seus lar.
 
 # O Homem como autoridade do lar
 
-Gênesis 2:18: A mulher é auxiliadora do homem.
+O homem precisa resgatar sua responsabilidade perante Deus e sua família como um sacerdote, um rei e um profeta.
 
-O homem precisa resgatar sua responsabilidade perante Deus, esposa e filhos como um sacerdote, rei e o profeta.
+## Autoridade pela liderança
 
-## Autoridade pelo exemplo
+Os reinos cristãos possuem 3 papeis importantíssimos que lhe assegura estabilidade e prosperidade:
 
-Gênesis 18:19: Abraão **intercede** por sua casa. (**sacerdote**), depois Moisés em favor do povo hebreu.
+### O sacerdote 
+Aquele que intercede. Via-se muitos líderes sempre se colocando entre Deus e aqueles sobre sua responsabilidade.
+Em Gênesis 18:19 Abraão **intercede** por seus parentes. Igualmente por várias vezes foi à presença de Deus para em favor do povo hebreu.
+
+
+o rei (que executa) e o profeta (que instrui) da casa.
+
 
 Jó 1:5: Jó chamava seus filhos e os santificava. Jó 4:3: **Ensinava** a muitos e fortalecia as mãos fracas. (**profeta**)
 
