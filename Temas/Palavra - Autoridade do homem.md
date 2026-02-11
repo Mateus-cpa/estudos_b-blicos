@@ -38,21 +38,41 @@ O homem precisa resgatar sua responsabilidade perante Deus e sua família como u
 
 ## Autoridade pela liderança
 
+Nós inconscientemente honramos nossos pais aplicando o modo de vida através de sua vida. Isso é o significado de legado, assim vivemos além de nossas vidas.
+
 Os reinos cristãos possuem 3 papeis importantíssimos que lhe assegura estabilidade e prosperidade:
 
 ### O sacerdote 
 Aquele que intercede. Via-se muitos líderes sempre se colocando entre Deus e aqueles sobre sua responsabilidade.
 Em Gênesis 18:19 Abraão **intercede** por seus parentes. Igualmente por várias vezes foi à presença de Deus para em favor do povo hebreu.
 
+Moisés, seguido o que Deus lhe ordenou, ungiou Arão, seu irmão, como Sumo-Sacerdote. Dentre os detalhes das veste, destaco o trecho abaixo.
 
-o rei (que executa) e o profeta (que instrui) da casa.
+>Êxodo 39:6-7:   
+>⁶ Prenderam as pedras de ônix em filigranas de ouro e nelas gravaram os nomes dos filhos de Israel, como um lapidador grava um selo.  
+>⁷ Então as costuraram nas ombreiras do colete sacerdotal, como pedras memoriais para os filhos de Israel, como o Senhor tinha ordenado a Moisés.
+
+O Sumo-Sacerdote carrega sobre os ombros o peso das 12 tribos de Israel, sendo o responsável por interceder por eles
 
 
-Jó 1:5: Jó chamava seus filhos e os santificava. Jó 4:3: **Ensinava** a muitos e fortalecia as mãos fracas. (**profeta**)
+### O profeta
 
-Josué 24:15: Eu e minha família serviremos ao Senhor. (**rei**)
+O profeta é aquele que transmite as palavras e os ensinamentos de Deus
 
-Nós inconscientemente honramos nossos pais aplicando o modo de vida através de sua vida. Isso é o significado de legado, assim vivemos além de nossas vidas.
+>Jó 1:5: Jó chamava seus filhos e os santificava. 
+
+>Jó 4:3: **Ensinava** a muitos e fortalecia as mãos fracas. 
+
+### o rei 
+
+O rei é aquele que segue e executa os mandamentos.
+
+> Josué 24:15: Eu e minha família serviremos ao Senhor. (**rei**)
+
+### Três em um
+
+Jesus é o profeta, o sacerdote e o rei de sua igreja, inicando um novo modelo de autoridade.
+
 
 ## Autoridade pela submissão
 
@@ -91,11 +111,6 @@ Quem terá a maior pena se for pego cochilando no emprego: O faxineiro do aeropo
 
 [Hebreus 13:17](https://www.bible.com/pt/bible/compare/HEB.13.17): "Obedecei a vossos pastores... porque velam por vossa alma, como aqueles que hão de dar conta delas"
 
-Êxodo 39:6-7:   
-⁶ Prenderam as pedras de ônix em filigranas de ouro e nelas gravaram os nomes dos filhos de Israel, como um lapidador grava um selo.  
-⁷ Então as costuraram nas ombreiras do colete sacerdotal, como pedras memoriais para os filhos de Israel, como o Senhor tinha ordenado a Moisés.
-
-O sacerdote carrega sobre os ombros o peso das 12 tribos de Israel, sendo o responsável por interceder por eles
 
 # A amor de Cristo pela igreja
 
