@@ -47,7 +47,10 @@ Fork: Se quiser usar esta estrutura como base para o seu próprio repositório d
 📌 Ferramentas Utilizadas
 Markdown (para escrita original e formatação)
 
-Versões da Bíblia: Almeida Corrigida Fiel (ACF), NVI e NAA.
+Versões da Bíblia: 
+- ACF - Almeida Corrigida Fiel 
+- NVI - Nova Versão Internacional
+- BKJ - Bíblia King James.
 
 ⚖️ Licença
 Este repositório está sob a licença MIT. Sinta-se livre para usar o conteúdo, desde que mantida a fonte original.
